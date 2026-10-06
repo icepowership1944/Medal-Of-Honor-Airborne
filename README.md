@@ -224,4 +224,4 @@ Medal of Honor: Airborne is offered as a full free version with all features and
 Download Medal of Honor: Airborne today and experience the thrill of being a WWII paratrooper! Join the fight and make your mark in history!
 
 ---
-**Last updated:** 2026-10-05 23:36:00 UTC
+**Last updated:** 2026-10-06 04:23:30 UTC
